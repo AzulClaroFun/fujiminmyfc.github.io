@@ -1,0 +1,1 @@
+# fujiminmyfc.github.io
